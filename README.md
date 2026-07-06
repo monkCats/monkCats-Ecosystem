@@ -18,6 +18,8 @@ Our technical goal is to organize permanent financial support; to automate fund 
 
 To show that technologies can serve for the good of the global community!
 
+**Join the movement, change the World with us!**
+
 ## 🌐 Official Links
 
 * Telegram Channel: [Join Community](https://t.me/monkCats)
